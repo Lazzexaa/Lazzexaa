@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lazzexaa
-- 👀 I’m interested in Ethical hacking 
+- 👀 I’m interested in Your mom obviously :sigh:
 - 🌱 I’m currently learning ... nothing
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ... Proxigoat#6969
